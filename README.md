@@ -1,2 +1,2 @@
 # My-Resume
-Link to my resume
+Follow here to go through my resume
